@@ -1,1 +1,0 @@
-# Mini-page-of-business
